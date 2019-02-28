@@ -37,6 +37,6 @@ $ python2 osif.py
 * [Warn] please turn off your VPN before using this program !!!
 * [Tips] do not overuse this program !!!
 
-# TechDossier ( Best Channel for YouTube)
+# TechDossier ( Official channel - Admin Red_Devil)
 please like and share your friends.  
 # SUBSCRIBE  
