@@ -36,3 +36,7 @@ $ python2 osif.py
 * if you are confused how to use it, please type 'help' to display the help menu
 * [Warn] please turn off your VPN before using this program !!!
 * [Tips] do not overuse this program !!!
+
+# TechDossier ( Best Channel for YouTube)
+please like and share your friends.  
+# SUBSCRIBE  
